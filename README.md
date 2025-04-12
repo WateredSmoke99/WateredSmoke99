@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to code
 - 💞️ I’m looking to collaborate on I SERIOSLY DONT KNOW
 - 📫 How to reach me huh what does he mean
-- 😄 Pronouns: MalwareHunter
+- 😄 Pronouns: SyedXStorm
 - ⚡ Fun fact: i like funny things and i laugh very much
 
 <!---
